@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-<!---
-kdukdukdu/kdukdukdu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Olá, seja bem vindo. Fique a vontade. Fique a vontade pra me pagar um café/bcoinha 
+Carteira Walet>
+
+0xAc8b000865BdBcD6C4eD4Ac85475Afd57DD2244D
